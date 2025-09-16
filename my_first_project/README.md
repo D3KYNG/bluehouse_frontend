@@ -1,1 +1,2 @@
-why werey dey  misbehave?
+why werey dey  misbehave!
+ON GOD!
